@@ -6,7 +6,7 @@
 
 - 📫 Reach me on **imtiazahmed026@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/1PwxDDUJSrWyYruDQkrNLfGssvBDtuiR_?usp=sharing]([https://drive.google.com/file/d/1Db3K75KQ3NVypeUF8eheiW5hBlPZJin5/view?usp=sharing](https://drive.google.com/drive/folders/1PwxDDUJSrWyYruDQkrNLfGssvBDtuiR_?usp=sharing))
+- 📄 Know about my experiences [https://drive.google.com/file/d/1Db3K75KQ3NVypeUF8eheiW5hBlPZJin5/view?usp=sharing](https://drive.google.com/file/d/1Db3K75KQ3NVypeUF8eheiW5hBlPZJin5/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
